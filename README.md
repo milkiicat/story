@@ -1,1 +1,3 @@
 # story
+
+ I opened my eyes slowly, slowly gaining my vision back. I rubbed my eyes and turned stratched out my hand to grab the clock on my nightstand. My hands fumbled around, touching my surroundings and trying to find the non existent clock that i thought was there. I let out a groan, not wanting to get up. Slowly, i arched my back sat up with a light push. Still half asleep, i lifted my blanket and took a step out of bed. "Wait a moment..." I immediately retracted my feet. I did not kow where i was. I wasnt in my usual room, with fairylights and polaroids hanged around. Instead, it was something dull, walls painted with white and minimalistic furniture. It was the complete opposite. 
